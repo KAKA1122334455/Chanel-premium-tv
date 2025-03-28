@@ -1,1 +1,1 @@
-# Chanel-premium-tv
+https://pastebin.com/raw/g9KEXUnf
